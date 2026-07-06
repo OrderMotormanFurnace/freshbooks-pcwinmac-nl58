@@ -1,4 +1,4 @@
-# 
+# Premium FreshBooks complementos para Mac OS | Elite FreshBooks complementos para PC Windows. Com armazenamento em nuvem e planejamento tributário — otimizado para máximo desempenho em cada plataforma.
 
 
 
